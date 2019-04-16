@@ -86,4 +86,3 @@ Just so you know, the license type is MIT.
 >Its' all about being community driven.  :bus: :bus: :dash:
 
 Have a great day!  :smile: :smile: :smiley:
-
